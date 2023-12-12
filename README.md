@@ -8,7 +8,7 @@ luvee: hello ! i hope my page is a safe space for those who need it, if you thin
 
 p.s. to all my hello kitty girlies: 
 
-/\ 🎀/\
+🎀
 ﾐ ・◦・ ﾐ
 welcome all ye hopeful and bright 🎧
 
