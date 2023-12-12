@@ -3,6 +3,7 @@ luvee: hello ! i hope my page is a safe space for those who need it, if you thin
 ──★ my name is luv ! (she/her) i am 15 ! 🇺🇸
 
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ Ren/cos, art of any kind, TMNT !! send me playlists or pinterest boards!!
+
 ૮ ˙Ⱉ˙ ა I have a boyfriend !! X dm roleplay !! X suggestive comments/photos !!
 
 p.s. to all my hello kitty girlies: 
