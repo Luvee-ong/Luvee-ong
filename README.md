@@ -1,6 +1,6 @@
 luvee: hello ! i hope my page is a safe space for those who need it, if you think i am tacky or weird, then maybe this isnt the page for you ! 
 
-──★ my name is luv ! (she/her) i am 17 ! 🇺🇸
+──★ my name is luv ! (she/her) ! 🇺🇸
 
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ Ren/cos, art of any kind, TMNT !! send me playlists or pinterest boards!!
 
